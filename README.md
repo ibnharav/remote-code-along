@@ -1,1 +1,1 @@
-Rhubarb & Custard
+Rhubarb & Custard (trifle)
